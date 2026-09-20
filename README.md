@@ -1,3 +1,3 @@
 # ShadowPost
 
-Hey Amir! from t3chbr0
+Hello, t3chbro. Nice to meet you!
